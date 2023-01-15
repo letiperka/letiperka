@@ -1,7 +1,7 @@
 ```
-i'm a beginner web developer interested in 
-expressing myself through simple websites 
-that i make in my free time :^)                         |\_/|
+i use my basic knowledge of html to
+express myself through simple web
+sites that i make in my free time :^)                   |\_/|
                                                         (. .)
 i'm mostly interested in gaming and                      =w= (\
 programming but also draw as a hobby!                   / ^ \//
