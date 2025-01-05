@@ -1,9 +1,7 @@
 ```
-i use my basic knowledge of html 
-to express myself through simple 
-websites  :^)                                           |\_/|
-                                                        (. .)
-i'm mostly interested in gaming and                      =w= (\
-programming but also draw as a hobby!                   / ^ \//
+tbh paw patrol kinda mid. have                          |\_/|
+you ever heard of a show called                         (. .)
+Jojo's Bizarre Adventure                                 =w= (\
+                                                        / ^ \//
                                                        (|| ||)
                                                        ,""_""_ .```
